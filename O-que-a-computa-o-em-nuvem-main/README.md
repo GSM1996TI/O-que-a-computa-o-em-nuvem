@@ -1,1 +1,0 @@
-# O-que-a-computa-o-em-nuvem
